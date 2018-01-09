@@ -1,4 +1,4 @@
-# MediaChain 
+# Media Chain Token
 
 JANUARY 2018
 
